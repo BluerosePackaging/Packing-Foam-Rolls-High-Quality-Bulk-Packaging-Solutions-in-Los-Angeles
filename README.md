@@ -47,7 +47,7 @@ Wholesale foam rolls simplify procurement and reduce overall packaging costs.
 
 ## Order Packing Foam Rolls for Shipping
 
-Organizations that [**order Packing Foam Rolls for shipping**](https://www.bluerosepackaging.com/location/los-angeles/buy-wholesale-custom-protective-packaging-near-me-in-los-angeles/) can improve product safety, minimize damage, and streamline their packaging processes. Packing foam rolls can be layered, wrapped, or used to fill empty spaces in cartons, providing shock absorption and protecting delicate items from impact and vibration.
+Organizations that [**order Packing Foam Rolls for shipping**](https://www.bluerosepackaging.com/product/packing-foam-rolls/) can improve product safety, minimize damage, and streamline their packaging processes. Packing foam rolls can be layered, wrapped, or used to fill empty spaces in cartons, providing shock absorption and protecting delicate items from impact and vibration.
 
 ### Shipping Benefits:
 - Reduces product damage and breakage  
